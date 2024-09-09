@@ -7,3 +7,5 @@
 연락처: young.min.kang @ gmail.com / ymkang @ tu.ac.kr
 
 전화: 051-629-1253 (학과사무실: 629-1241)
+
+## 2학기에 도전할 일
