@@ -8,6 +8,10 @@
 
 전화: 051-629-1253 (학과사무실: 629-1241)
 
+## 멘토링 2 설문
+
+[설문조사 참여](https://forms.office.com/Pages/ResponsePage.aspx?id=DQSIkWdsW0yxEjajBLZtrQAAAAAAAAAAAAO__fVSsTlUNThPU0hXVzc1NFBKNkJHSTk5QVE3RUhYSC4u)
+
 ## 2학기에 도전할 일
 
 ### Game Challenge
