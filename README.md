@@ -10,4 +10,4 @@
 
 ## 2학기에 도전할 일
 
-### Game Challenge()
+### Game Challenge(https://github.com/dknife/2024Mentoring/blob/main/GameChallenge/PDF_SmallSized_GameChallenge.pdf)
